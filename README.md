@@ -43,4 +43,4 @@ Synchronized Formula Fusion (2021)
 ## Contact
 Here's how you can contact me:
 
-[![LinkedIn](https://i.imgur.com/Z40Lmwr.png)](https://www.linkedin.com/in/john-kieth-361528185/) [![Gmail](https://i.imgur.com/yjGT6H5.png)](mailto:flight7t7@gmail.com)
+[![LinkedIn](https://i.imgur.com/Z40Lmwr.png)](https://www.linkedin.com/in/jo%C3%A3o-victor-nunes-de-sousa-361528185/) [![Gmail](https://i.imgur.com/yjGT6H5.png)](mailto:flight7t7@gmail.com)
