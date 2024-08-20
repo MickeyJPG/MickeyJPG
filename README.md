@@ -29,14 +29,18 @@ Ever since attempting to create at ROBLOX in 2014, I've been studying to improve
 Here are some of the projects i've been involved in:
 
 Copa ROBLOX (2023)
+
 [![Copa ROBLOX](https://i.imgur.com/XZhuoMO.png)](https://www.roblox.com/games/15235082344/Copa-ROBLOX-Mapa-de-Treino)
 
 Pitch V3 (2024)
+
 [![Pitch V3](https://i.imgur.com/tfpYDp7.png)](https://www.roblox.com/games/13992332877/MPS-Pitch-V3)
 
 Synchronized Formula Fusion (2021)
+
 [![Pitch V3](https://i.imgur.com/vlQf4rD.png)](https://www.roblox.com/games/2097930161/NEW-ERA-OF-SF-FUSION-SF-Fusion)
 
 ## Contact
 Here's how you can contact me:
+
 [![LinkedIn](https://i.imgur.com/Z40Lmwr.png)](https://www.linkedin.com/in/john-kieth-361528185/) [![Gmail](https://i.imgur.com/yjGT6H5.png)](mailto:flight7t7@gmail.com)
