@@ -28,17 +28,21 @@ Ever since attempting to create at ROBLOX in 2014, I've been studying to improve
 ## Involvement
 Here are some of the projects i've been involved in:
 
-Copa ROBLOX (2023)
+Copa ROBLOX (2023-Nowadays)
 
-[![Copa ROBLOX](https://i.imgur.com/XZhuoMO.png)](https://www.roblox.com/games/15235082344/Copa-ROBLOX-Mapa-de-Treino)
+[![Copa ROBLOX](https://i.imgur.com/7wUUk8o.png)](https://www.roblox.com/games/15235082344/Copa-ROBLOX-Mapa-de-Treino)
 
-Pitch V3 (2024)
+Pitch V3 (2024-Nowadays)
 
 [![Pitch V3](https://i.imgur.com/tfpYDp7.png)](https://www.roblox.com/games/13992332877/MPS-Pitch-V3)
 
-Synchronized Formula Fusion (2021)
+Formula Fusion Racing (2025-Nowadays)
 
-[![Pitch V3](https://i.imgur.com/vlQf4rD.png)](https://www.roblox.com/games/2097930161/NEW-ERA-OF-SF-FUSION-SF-Fusion)
+[![Pitch V3](https://i.imgur.com/tVtbHM4.png)](https://www.roblox.com/games/7547392226/Formula-Fusion-Racing-NEW-VENUES)
+
+Synchronized Formula Fusion (2021-2022)
+
+[![SF Fusion](https://i.imgur.com/vlQf4rD.png)](https://www.roblox.com/games/2097930161/NEW-ERA-OF-SF-FUSION-SF-Fusion)
 
 ## Contact
 Here's how you can contact me:
