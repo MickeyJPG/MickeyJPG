@@ -34,7 +34,7 @@ Copa ROBLOX (2023-Nowadays)
 
 Pitch V3 (2024-Nowadays)
 
-[![Pitch V3](https://i.imgur.com/tfpYDp7.png)](https://www.roblox.com/games/13992332877/MPS-Pitch-V3)
+[![Pitch V3](https://i.imgur.com/6ZTLB8e.png)](https://www.roblox.com/games/13992332877/MPS-Pitch-V3)
 
 Formula Fusion Racing (2025-Nowadays)
 
@@ -42,7 +42,7 @@ Formula Fusion Racing (2025-Nowadays)
 
 Synchronized Formula Fusion (2021-2022)
 
-[![SF Fusion](https://i.imgur.com/vlQf4rD.png)](https://www.roblox.com/games/2097930161/NEW-ERA-OF-SF-FUSION-SF-Fusion)
+[![SF Fusion](https://i.imgur.com/a5urt3j.png)](https://www.roblox.com/games/2097930161/NEW-ERA-OF-SF-FUSION-SF-Fusion)
 
 ## Contact
 Here's how you can contact me:
